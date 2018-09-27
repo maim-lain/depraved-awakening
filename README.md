@@ -18,11 +18,11 @@
 <br>
 
 ## Day 2
-### Morning:
+#### Morning:
 - Yeah of course
 - Grab a feel
 
-### Investigating:
+#### Investigating:
 - Sounds good
 - You tell me
 - Respond in kind
@@ -30,7 +30,7 @@
 - Push her
 - Follow her
 
-### Home:
+#### Home:
 - Peek
 - Let her have wine
 - Touch a breast
@@ -40,15 +40,15 @@
 <br>
 
 ## Day 3
-### Morning:
+#### Morning:
 - Something more inviting
 
 
-### Yoga studio:
+#### Yoga studio:
 
-### Evening:
+#### Evening:
 
-### Night:
+#### Night:
 
 <br>
 <br>
