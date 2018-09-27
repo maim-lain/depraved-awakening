@@ -11,9 +11,9 @@ Depraved Awakening: Incest Patch + Improvements Mod
 #### fugggg
 - Day 1: Watching Carli's deepthroat scene no longer prevents you from seeing her office scene on day 3 and no longer prevents you from doing the threesome route.
 - Day 3: Doing Jody's outfit event on day 3 will no longer make you miss Mido's scene on day 4.
-- Day 3: Without this mod doing Jody's night scene instead of the boring outfit event prevents you from doing literally every Jody event and scene from the club and Christina's house on day 5/6. Like what the fuck you miss 4 scenes without even doing anything wrong. This mod fixes that and no longer makes you miss everything if you do the night scene.
+- Day 3: Without this mod doing Judy's night scene instead of the boring outfit event prevents you from doing literally every Jody event and scene from the club and Christina's house on day 5/6. Like what the fuck you miss 4 scenes without even doing anything wrong. This mod fixes that and no longer makes you miss everything if you do the night scene.
+- Day 3: Removed the really out of place confession that Judy makes about Eddie when she's drunk.
 - club scenes?
-
 ```
 pic: she's your daughter?!? is that even
 
