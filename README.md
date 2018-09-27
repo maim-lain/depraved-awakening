@@ -57,7 +57,19 @@
 <br>
 
 ## Day 4
+#### Morning:
 - It must have been a good show
+- The outfit is nice
+- Truth -> Interrupt Judy
+- Ask out to dinner
+- Approach him -> Mention Awakenings
+- Listen -> Truth
+
+#### Night:
+- Talk to him -> Wait -> Keep waiting
+- No means yes
+- I want it rough
+- Be nice
 
 
 
