@@ -7,9 +7,9 @@ can't auto get mido scene now since not enough dep fuck
 It's actually insane how much content 
 
 Depraved Awakening Incest Patch + Improvements Mod
-- Day 1: Watching Carli's deepthroat scene no longer prevents you from seeing her office scene on day 3 and no longer prevents you from doing the threesome route.
-- Day 3: Without this mod doing Jody's night scene instead of the boring outfit event prevents you from doing literally every Jody event and scene from the club and Christina's house on day 5/6. Like what the fuck you miss 4 scenes without even doing anything wrong. This mod fixes that no longer makes you miss everything without 
-- Day 3: If you do choose to do the outfit event on day 3 you no longer will miss Mido's ? on day 4.
+- Day 1: Being naughty and watching Carli's deepthroat scene no longer prevents you from seeing her office scene on day 3 and no longer prevents you from doing the threesome route.
+- Day 3: Doing Jody's outfit event on day 3 will no longer make you miss Mido's apartment scene on day 4.
+- Day 3: Without this mod doing Jody's night scene instead of the boring outfit event prevents you from doing literally every Jody event and scene from the club and Christina's house on day 5/6. Like what the fuck you miss 4 scenes without even doing anything wrong. This mod fixes that and no longer makes you miss everything if you do the night scene.
 
 ```
 pic: she's your daughter?!? is that even
