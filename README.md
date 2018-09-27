@@ -17,7 +17,7 @@ j "What -- I'm not allowed to visit my dad?"
 p "Judy, you haven't visited my office once since I've been here."
 "{color=#ffeebb}You've gotta be kidding me. My wife sleeps around on me {i}and{/i} gets herself sent to prison, and now our daughter wants to stay with me?{/color}"
 
-p "My daughter who had been living with my ex-wife came back into town and is now staying at my place."
+p "My daughter, who until recently was living with my wife, came back into town and is now staying at my place."
 p "Sure thing. It's just that my daughter of all people, who was until recently living with my wife, came back into town and is now staying at my place."
 ```
 
@@ -94,7 +94,7 @@ p "Sure thing. It's just that my daughter of all people, who was until recently 
 <br>
 <br>
 
-## Day 4
+## Day 5
 #### Morning:
 - Part of the truth
 - Justice
