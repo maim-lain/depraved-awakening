@@ -99,10 +99,13 @@ say that divorced, don't visit, haven't seen her in a long time, didn't live wit
 - Part of the truth
 - Justice
 - Peek
-- ?
+- Stop him
 - Truth
-- .
+- Grab a feel -> Not sure
 
+#### Night:
+- It's too late -> Either
+- Yes
 
 
 
