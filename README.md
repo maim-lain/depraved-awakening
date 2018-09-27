@@ -5,7 +5,10 @@ Getting all the scenes is really fucking hard.
 It's actually insane how much content you get locked out of for ansolutely no reason.
 
 Depraved Awakening: Incest Patch + Improvements Mod
-- Not just a simple replacing 'step-daughter' with 'daughter'. Lot's of new dialog has been added or changed.
+- Lot's of dialog has been changed or replaced with new dialog so that Judy is now your actual daughter. This wasn't a simple replacing the word 'step-daughter' with 'daughter' process. Instead I rewrote a lot of the lines so the dialog and context makes sense.
+- Added the option to skip a scene where best girl gets fugged by another dude. :o If you skip it a new scene will play instead.
+
+#### fugggg
 - Day 1: Watching Carli's deepthroat scene no longer prevents you from seeing her office scene on day 3 and no longer prevents you from doing the threesome route.
 - Day 3: Doing Jody's outfit event on day 3 will no longer make you miss Mido's scene on day 4.
 - Day 3: Without this mod doing Jody's night scene instead of the boring outfit event prevents you from doing literally every Jody event and scene from the club and Christina's house on day 5/6. Like what the fuck you miss 4 scenes without even doing anything wrong. This mod fixes that and no longer makes you miss everything if you do the night scene.
