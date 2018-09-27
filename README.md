@@ -43,15 +43,13 @@
 - I think so
 - Watch and masturbate
 - Lie
-- Yes
+- No
 
 #### Night:
 - That's not casual wear
 - Hold her -> Squeeze her
-- Judy night scene (you can only choose one option):
-  - Option 1 - Finger her: Turn her on her back
-  - Option 2 - Finger her ass: Turn her on her stomach
-  - You won't get caught so keep going
+- She can piss off
+- It's very sexy
 
 <br>
 <br>
@@ -80,6 +78,9 @@
 #### Morning:
 - Part of the truth
 - Justice
+- Peek
+- ?
+- Truth
 - .
 
 
