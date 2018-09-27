@@ -70,8 +70,7 @@
 - No means yes
 - I want it rough
 - Be nice
-  - Option 1 - Be my damsel: Be soft
-  - Option 2 - Be obedient: Be rough
+- Choose 'Be my damsel' to be soft, or 'Be obedient' to be rough
 - Offer whiskey
 
 <br>
