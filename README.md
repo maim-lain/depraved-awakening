@@ -1,6 +1,9 @@
 # Depraved Awakening - Simplified Walkthrough
 [*\~My list of walkthroughs and when they'll be updated\~*](https://www.patreon.com/maimlain)
 
+Getting all the scenes is really fucking hard.
+can't auto get mido scene now since not enough dep fuck
+
 <br>
 <br>
 <br>
