@@ -5,6 +5,7 @@ Getting all the scenes is really fucking hard.
 It's actually insane how much content you get locked out of for ansolutely no reason.
 
 Depraved Awakening: Incest Patch + Improvements Mod
+- Not just a simple replacing 'step-daughter' with 'daughter'. Lot's of new dialog has been added or changed.
 - Day 1: Watching Carli's deepthroat scene no longer prevents you from seeing her office scene on day 3 and no longer prevents you from doing the threesome route.
 - Day 3: Doing Jody's outfit event on day 3 will no longer make you miss Mido's scene on day 4.
 - Day 3: Without this mod doing Jody's night scene instead of the boring outfit event prevents you from doing literally every Jody event and scene from the club and Christina's house on day 5/6. Like what the fuck you miss 4 scenes without even doing anything wrong. This mod fixes that and no longer makes you miss everything if you do the night scene.
@@ -14,10 +15,6 @@ Depraved Awakening: Incest Patch + Improvements Mod
 pic: she's your daughter?!? is that even
 
 say that divorced, don't visit, haven't seen her in a long time, didn't live with her, etc.
-
-j "What -- I'm not allowed to visit my dad?"
-p "Judy, you haven't visited my office once since I've been here."
-"{color=#ffeebb}You've gotta be kidding me. My wife sleeps around on me {i}and{/i} gets herself sent to prison, and now our daughter wants to stay with me?{/color}"
 
 p "My daughter, who until recently was living with my wife, came back into town and is now staying at my place."
 p "Sure thing. It's just that my daughter of all people, who was until recently living with my wife, came back into town and is now staying at my place."
@@ -30,7 +27,7 @@ p "Sure thing. It's just that my daughter of all people, who was until recently 
 ## Day 1
 - She is way better
 - Truth about job
-- Nothing too crazy
+- Wild and naughty
 - For this scene if you want to see everything you have to choose the options in this order:
   - Bend over -> Finger her
   - Make her taste it -> Go deeper -> Hold it down
