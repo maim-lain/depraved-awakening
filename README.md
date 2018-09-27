@@ -6,7 +6,7 @@ It's actually insane how much content you get locked out of for ansolutely no re
 
 Depraved Awakening: Incest Patch + Improvements Mod
 - Lot's of dialog has been changed or replaced with new dialog so that Judy is now your actual daughter. This wasn't a simple replacing the word 'step-daughter' with 'daughter' process. Instead I rewrote many lines so the dialog and context make sense.
-- Added the option to skip a scene where best girl gets fugged by an old dude. :'( If you skip it a new massage girl fingering scene will play instead.
+- Added the option to skip a scene where best girl gets fugged by another dude. :'( If you skip it a new massage girl fingering scene will play instead.
 
 #### fugggg
 - Day 1: Watching Carli's deepthroat scene no longer prevents you from seeing her office scene on day 3 and no longer prevents you from doing the threesome route.
@@ -18,9 +18,6 @@ Depraved Awakening: Incest Patch + Improvements Mod
 pic: she's your daughter?!? is that even
 
 say that divorced, don't visit, haven't seen her in a long time, didn't live with her, etc.
-
-p "My daughter, who until recently was living with my wife, came back into town and is now staying at my place."
-p "Sure thing. It's just that my daughter of all people, who was until recently living with my wife, came back into town and is now staying at my place."
 ```
 
 <br>
