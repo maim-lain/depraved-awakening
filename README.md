@@ -2,7 +2,7 @@
 [*\~My list of walkthroughs and when they'll be updated\~*](https://www.patreon.com/maimlain)
 
 Getting all the scenes is really fucking hard.  
-It's actually insane how much content you get locked out of.
+It's actually insane how much content you get locked out of for ansolutely no reason.
 
 Depraved Awakening Incest Patch + Improvements Mod
 - Day 1: Watching Carli's deepthroat scene no longer prevents you from seeing her office scene on day 3 and no longer prevents you from doing the threesome route.
