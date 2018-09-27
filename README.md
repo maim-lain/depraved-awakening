@@ -62,13 +62,14 @@ say that divorced, don't visit, haven't seen her in a long time, didn't live wit
 - I think so
 - Watch and masturbate
 - Lie
-- No
+- Yes
 
 #### Night:
 - That's not casual wear
 - Hold her -> Squeeze her
-- She can piss off
-- It's very sexy
+- You can only choose one:
+  - On her back - See her tits, finger her, and jack off
+  - On her stomach - Finger and use her ass
 
 <br>
 <br>
