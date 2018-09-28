@@ -5,7 +5,7 @@
 <br>
 
 [**Depraved Awakening - Incest Patch + Improvements Mod**](https://github.com/maim-lain/mythicmanor/blob/master/mod.md)  
-To follow this walkthrough perfectly you'll need the mod. Following this walkthrough will get you as many scenes as possible, but some events won't be available if you are not using the mod.
+To follow this walkthrough perfectly you'll need the mod. This walkthrough gets as many scenes as possible, but some events won't be available if you are not using the mod.
 
 <br>
 <br>
