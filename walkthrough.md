@@ -92,8 +92,19 @@ To follow this walkthrough perfectly you'll need the mod. This walkthrough gets 
 #### Night:
 - It's too late -> Any
 - Yes
+- No
+- It must be expensive
+- I need a daddy's girl
 
+<br>
+<br>
 
+## Day 6
+#### Morning:
+- Being your daddy
+- Choose between the sweet outfit or spicy outfit
+
+#### Night:
 
 
 
