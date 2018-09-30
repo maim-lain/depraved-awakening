@@ -103,6 +103,8 @@ To follow this walkthrough perfectly you'll need the mod. This walkthrough gets 
 #### Morning:
 - Being your daddy
 - Choose between the sweet outfit or spicy outfit
+- Truth
+- Yep
 
 #### Night:
 
