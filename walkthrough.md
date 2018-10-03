@@ -105,9 +105,14 @@ To follow this walkthrough perfectly you'll need the mod. This walkthrough gets 
 - Choose between the sweet outfit or spicy outfit
 - Truth
 - Yep
+- I'll see what I can do
 
 #### Night:
-
-
+- Explore first
+- Poor guy
+- Very much
+- ... I need this
+- do each option
+- Treat her like a slut
 
 
