@@ -111,8 +111,13 @@ To follow this walkthrough perfectly you'll need the mod. This walkthrough gets 
 - Explore first
 - Poor guy
 - Very much
-- ... I need this
-- do each option
+- I need this
+- Start from the top and do each option
 - Treat her like a slut
 
+<br>
+<br>
 
+## Day 7
+#### Morning:
+- Beautiful/Sexy
