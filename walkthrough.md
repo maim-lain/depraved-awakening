@@ -139,4 +139,8 @@ To follow this walkthrough perfectly you'll need the mod. This walkthrough gets 
     - Mi-do or carli, but don't ensure anything??
   - Not like that
     - Mi-do path, close scenes with Carli
-
+- Truth -> Truth
+- Say nothing
+- Front door -> Approach -> Mention death
+- Search around -> Keep going -> Keep going
+- Threatened your sister?
