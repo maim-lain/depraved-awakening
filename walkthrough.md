@@ -119,5 +119,24 @@ To follow this walkthrough perfectly you'll need the mod. This walkthrough gets 
 <br>
 
 ## Day 7
+- Sexy
+- Can I see?
+- Oh you naughty woman
+- Just a feel -> Give them a squeeze
+- No time to waste
+- Make her yours
+
+<br>
+<br>
+
+## Day 8
 #### Morning:
-- Beautiful/Sexy
+- Apologize
+- wtf
+  - Very much so
+    - Threesome with carli + stella. end mido path.
+  - Yes
+    - Mi-do or carli, but don't ensure anything??
+  - Not like that
+    - Mi-do path, close scenes with Carli
+
