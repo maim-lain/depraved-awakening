@@ -132,15 +132,11 @@ To follow this walkthrough perfectly you'll need the mod. This walkthrough gets 
 ## Day 8
 #### Morning:
 - Apologize
-- wtf
-  - Very much so
-    - Threesome with carli + stella. end mido path.
-  - Yes
-    - Mi-do or carli, but don't ensure anything??
-  - Not like that
-    - Mi-do path, close scenes with Carli
+- Yes
 - Truth -> Truth
 - Say nothing
 - Front door -> Approach -> Mention death
 - Search around -> Keep going -> Keep going
 - Threatened your sister?
+
+#### Night:
