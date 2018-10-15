@@ -130,7 +130,6 @@ To follow this walkthrough perfectly you'll need the mod. This walkthrough gets 
 <br>
 
 ## Day 8
-#### Morning:
 - Apologize
 - Yes
 - Truth -> Truth
@@ -138,5 +137,3 @@ To follow this walkthrough perfectly you'll need the mod. This walkthrough gets 
 - Front door -> Approach -> Mention death
 - Search around -> Keep going -> Keep going
 - Threatened your sister?
-
-#### Night:
