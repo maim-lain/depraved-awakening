@@ -1,1 +1,1 @@
-[**Depraved Awakening Walkthrough**](https://github.com/maim-lain/depraved-awakening/blob/master/walkthrough.md)
+[**Depraved Awakening Walkthrough**](https://www.patreon.com/posts/depraved-patch-25192672)
