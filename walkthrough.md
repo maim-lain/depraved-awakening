@@ -1,3 +1,7 @@
+[**Depraved Awakening Walkthrough**](https://www.patreon.com/posts/depraved-patch-25192672)
+
+<!--
+
 # Depraved Awakening - Simplified Walkthrough
 [*\~My list of walkthroughs and when they'll be updated\~*](https://www.patreon.com/maimlain)
 
@@ -138,3 +142,5 @@ To follow this walkthrough perfectly you'll need the mod. This walkthrough gets 
 - Front door -> Approach -> Mention death
 - Search around -> Keep going -> Keep going
 - Threatened your sister?
+
+-->
